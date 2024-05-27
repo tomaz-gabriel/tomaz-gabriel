@@ -6,9 +6,9 @@ Meu nome é Gabryel
 - Estou me desenvolvendo na liguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-- ### Voce pode entrar em contato comigo 📧
+ ### Voce pode entrar em contato comigo 📧
 
-  00001097707301sp@al.educacao.sp.gov.br
+00001097707301sp@al.educacao.sp.gov.br
 
 
   ![]([https://media1.tenor.com/m/YWrGUyPlM50AAAAC/onegai-my-melody-kuromi.gif)

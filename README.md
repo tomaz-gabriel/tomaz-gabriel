@@ -14,3 +14,5 @@ Meu nome é Gabryel
   ![](https://media1.tenor.com/m/HJ8Nxo6FkI0AAAAC/broncos-hello.gif)
 
 ![](https://media1.tenor.com/m/mFjD4sI2mdgAAAAC/kuromi.gif)
+
+![](https://media1.tenor.com/m/tULqxpxTQHsAAAAC/onegai-my-melody-kuromi.gif)
